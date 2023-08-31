@@ -1,4 +1,4 @@
-### "All we can do, Scully, is pull the thread, see what it unravels." 🔭
+### "All for the thrill of the hunt" 🎯
 <br>
 <br>
 <div>
