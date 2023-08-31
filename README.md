@@ -1,4 +1,4 @@
-### "All for the thrill of the hunt" 🎯
+### "The beauty of a living thing is not the atoms that go into it, but the way those atoms are put together. " - Carl Sagan 
 <br>
 <br>
 <div>
